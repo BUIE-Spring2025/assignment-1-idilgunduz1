@@ -1,0 +1,1 @@
+I did not use any outside help (digital or otherwise) and wrote the code myself.
